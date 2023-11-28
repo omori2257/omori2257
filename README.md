@@ -1,4 +1,4 @@
-Github - @omori2257
+Github - @omori2257  
 Twitter - @omori_2257
 
 <!---
